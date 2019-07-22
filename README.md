@@ -1,2 +1,2 @@
 # hello-world
-figuring this shit out mate
+Hey folks uhm just ignore me please i feel so stupid right now.
